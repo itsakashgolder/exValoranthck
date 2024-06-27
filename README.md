@@ -1,4 +1,4 @@
-[DOWNLOAD](https://goo.su/gehdnsdf)
+[DOWNLOAD](https://gitdwnl.com/latest)
 ---
 
 
